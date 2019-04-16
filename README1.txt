@@ -1,0 +1,1 @@
+Kurumsal Mimari Örneðim.
